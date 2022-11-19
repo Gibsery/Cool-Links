@@ -12,7 +12,7 @@ https://www.reddit.com/user/Gibsery
 
 Instagram
 
-https://www.instagram.com/gibbyglue/
+https://www.instagram.com/gibbygrey/
 
 Pinterest
 
