@@ -1,7 +1,3 @@
-My Website
-
-https://gimb.neocities.org/
-
 Youtube
 
 https://www.youtube.com/channel/UC0ldM_wWWJdqln3BhmWi6SQ
