@@ -8,8 +8,8 @@ https://www.reddit.com/user/Gibsery
 
 Instagram
 
-https://www.instagram.com/gibbygrey/
+https://www.instagram.com/gibbyguts/
 
 Pinterest
 
-https://www.pinterest.com/ENTERMYBODYGOD/
+https://www.pinterest.com/RUNTOGOD/
